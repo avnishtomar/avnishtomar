@@ -27,5 +27,5 @@
 ---
 
 ## 📫 **Connect with Me**  
-- **Email:** [avnishtomar@gmail.com](mailto:avnishtomarblog@gmail.com)  
+- **Email:** [avnishtomarblog@gmail.com](mailto:avnishtomarblog@gmail.com)  
 - **LinkedIn:** [linkedin.com/in/avnishtomarlink](https://linkedin.com/in/avnishtomarlink)  
